@@ -1,0 +1,1 @@
+# HastaneYönetimOtamasyonu
